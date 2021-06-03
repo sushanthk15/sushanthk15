@@ -1,3 +1,4 @@
+<img align="right" src="https://github.com/sushanthk15/sushanthk15/blob/main/ezgif.com-gif-maker.gif"  width="350" height="220"/>
 
 ## Hi! Welcome to Sushanth's Repo!! :smiley:
 
